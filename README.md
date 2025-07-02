@@ -17,7 +17,7 @@
 
 ## 👨‍💻 Desenvolvedor
 
-[Luca Macedo](https://www.linkedin.com/in/luca-macedo-659124219/)
+Luca Macedo ( <a href="https://www.linkedin.com/in/luca-macedo-659124219/">Linkedin</a> )
 
 
 
